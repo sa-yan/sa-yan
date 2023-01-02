@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Sayan Mondal 
+- 👀 I’m interested in building websites and fond of technology as well as a self taught programmer !!
+- 🌱 I’m currently learning Bachelor's of Engineering in Information Technology at Jadavpur University !! 
+- 💞️ I’m looking to collaborate as a web developer
+- 📫 How to reach me: Mob: +91-9339317773   email: sayan.mondal4557@gmail.com
